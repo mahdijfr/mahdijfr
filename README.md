@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mahdijfr, a computer science student a bachelors degree.
+- 👀 Well geekwise I'm intrested in physics more than computers but anyways programmin will do some for me as well.
+- 🌱 I’m currently having a java programming course from university(Oct 2022)
+- 💞️ I am currently willing to learn and only learned but once I did learn something I'd really like collabs.
+- 📫 Email me @ mahdijafari679@gmail.com !
